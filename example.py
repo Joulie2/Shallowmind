@@ -1,1 +1,1 @@
-https://www.youtube.com/watch?v=grtPlmmQJ5A&ab_channel=MichaelFrieze
+https://fbcdn-sphotos-e-a.hubatka.cz/hphotos-ak-prn1/44530_491807354174208_665546187_n.jpg
